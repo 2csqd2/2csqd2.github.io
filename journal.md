@@ -90,3 +90,6 @@ I woke up at 730am, called Lachelle's number (no answer), then texted her asking
 I ate breakfast and then Harper woke-up so I helped her get cereal.  I then unloaded the dishwasher and did another load of dishes before going down stairs to help Harper put together a puzzle.
 
 [Second text to Lachelle after her response](https://drive.google.com/open?id=1fgbH34kzi2EPc_BM122_BvP8-Kp1H0O7)
+
+<iframe src="https://drive.google.com/open?id=1fmRihaVr_jCllcaxol4M_0m8YBLrw5A6" width="200" height="200"></iframe>
+

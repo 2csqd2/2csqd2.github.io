@@ -1,4 +1,4 @@
-# This Documents My Marital Separation for the intent to divorce in the state of Virginia 
+# This webpage documents my marital separation for the intent to divorce in the state of Virginia.. 
 
 ## Getting Started
 
@@ -6,7 +6,7 @@ The index.html is required to provide a github webpage
 
 ## Creator
 
-This page is built by **[Cedric Cato](mailto:2csqd2@gmail.com)/davidmiller.io/)
+This page is built by *[Cedric Cato](mailto:2csqd2@gmail.com)*
 
 ## Copyright and License
 

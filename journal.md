@@ -1,9 +1,9 @@
 # Journal Entry
 <!-- TOC depthFrom:2 -->
 
-- [April](#April-2020)
-- [March](#March-2020)
-- [February](#February-2020)
+- [April](#april-2020)
+- [March](#march-2020)
+- [February](#february-2020)
 
 <!-- /TOC -->
 
@@ -20,7 +20,7 @@ Write content
 ### 2/30/2020
 
 Write content
-## March
+## March 2020
 
 ### 3/12/2020
 After Lachelle pic

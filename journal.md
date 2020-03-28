@@ -1,6 +1,21 @@
 # Journal Entry
-<!-- TOC -->
+<!-- TOC depthFrom:2 -->
 
+- [1. February](#1-Febrary 2020)
+- [2. Installation](#2-installation)
+- [3. Usage](#3-usage)
+    - [3.1. Insert TOC](#31-insert-toc)
+    - [3.2. Insert Header Number Sections](#32-insert-header-number-sections)
+- [4. Configuration](#4-configuration)
+    - [4.1. Default Settings](#41-default-settings)
+    - [4.2. Unique Settings](#42-unique-settings)
+- [5. Contributors](#5-contributors)
+- [6. What's New?](#6-whats-new)
+- [7. Question](#7-question)
+- [8. License](#8-license)
+- [9. Links](#9-links)
+
+<!-- /TOC -->
 
 ## February 2020
 
@@ -21,11 +36,11 @@ Write content
 After Lachelle pic
 
 ### 3/5/2020
-After Lachelle pickup Tyler from Gymnastics practice she dropped him off at 8:45pm. She left the house with telling me anything and returned home at 5:07am. I turned off the garage door opener on  purpose to make sure the Ring would capture her if and when she returned.  She stayed out with Phil all night, and didn't understand the basic optics of it (a married women spending the night with a man who is not her husband).  She claimed nothing happened, and they for drinks and then to a cigar bar.
+After Lachelle pickup Tyler from Gymnastics practice she dropped him off at 8:45pm. She left the house with telling me anything and returned home at 5:07am. I turned off the garage door opener on  purpose to make sure the Ring would capture her if and when she returned.  She stayed out with Phil all night, and didn't understand the basic optics of it (a married women spending the night with a man who is not her husband).  She claimed nothing happened, and they went for drinks and then to a cigar bar.
 
 [Drop off](https://drive.google.com/open?id=1u3tHQqAY6XGDDC6Y1cSAIbifFH-TFj3I)   
-[Return next morning](https://drive.google.com/open?id=1hR6cuIf8AwGOvvkj1Kpbfn8vQsBSOW4D)
 
+[Return next morning](https://drive.google.com/open?id=1hR6cuIf8AwGOvvkj1Kpbfn8vQsBSOW4D)
 
 ### 3/12/2020
 I dropped Harper off at the bus stop and Palmer at CPS.  I went to work and returned home about 5:15.  I met with a lawyer from 3:45 to 5:15.  Lachelle picked up Harper and Palmer.  Lachelle took Tyler to practice and picked him up.  Lachelle went out to see a movie (didn't tell me with whom, it was with Phil) at 9pm and returned home at approx. 4 am.
@@ -68,6 +83,7 @@ I woke up at 7 and had coffee and read the news.  Harper woke up at 8 am and I m
 I woke up at 7 and went to work, returning home at 4:30 pm.  I made noodles and miso soup for HArper for dinner, while Palmer had leftover pizza at about 5 pm.  Lachelle said she needed to go out and left shortly thereafter, so... she came back the next morning, again...
 
 [Return @ 439 next morning](https://drive.google.com/open?id=1epb-fvYu6S7LF5q7Qm5MMA7Qb1j-ORt0)
+
 [Walk-up @ 440 next morning](https://drive.google.com/open?id=1VN29dVpSNlN5YsP0PD_grUuHkbWJxxNw)
 
 ### 3/24/2020
@@ -82,9 +98,9 @@ I woke up at 5am and left for work at 5:30am went to work. I returned home a 2pm
 ### 3/27/2020
 I woke up at 5am and left for work at 5:30am went to work. I returned home at 430pm, Lachelle told me she was taking a nap as soon as I arrived. I made dinner for Harper and Palmer and I at 6pm.  At around 10pm, Lachelle cam down to the office and asked me for my car keys., stating that she needed to go take a drive.  I put everyone to bed at 1030pm and went to sleep.
 
-
 ### 3/28/2020
-I woke up at 730am, called Lachelle's number (no answer), then texted her asking whether I needed to report my car stolen ~
+I woke up at 730am, called Lachelle's number (no answer), then texted her asking whether I needed to report my car stolen 
+
 [First text to Lachelle](https://drive.google.com/open?id=1fMDgTrL0qSMKnFKL-46cUJAWjgqgNozY)
 
 I ate breakfast and then Harper woke-up so I helped her get cereal.  I then unloaded the dishwasher and did another load of dishes before going down stairs to help Harper put together a puzzle.

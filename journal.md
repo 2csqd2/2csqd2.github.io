@@ -18,6 +18,8 @@ I ate breakfast and then Harper woke-up so I helped her get cereal.  I then unlo
 
 [Lachelle's response, sigh....](https://drive.google.com/file/d/1fmRihaVr_jCllcaxol4M_0m8YBLrw5A6/view)
 
+At noon I instructed Tyler on how to make waffle/pancake batter since he wanted waffles.  I then made hot dogs for lunch for Harper and Palmer.  Lachelle returned at about 7 pm.
+
 ### 3/27/2020
 I woke up at 5am and left for work at 5:30am went to work. I returned home at 430pm, Lachelle told me she was taking a nap as soon as I arrived. I made dinner for Harper and Palmer and I at 6pm.  At around 10pm, Lachelle cam down to the office and asked me for my car keys., stating that she needed to go take a drive.  I put everyone to bed at 1030pm and went to sleep.
 

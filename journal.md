@@ -1,6 +1,6 @@
 # Journal Entry
+<!-- TOC -->
 
-[TOC]
 
 ## February 2020
 

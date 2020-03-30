@@ -7,6 +7,11 @@
 <!-- /TOC -->
 
 ## March 2020
+### 3/30/2020
+I woke up at 5am after hearing someone awake upstairs.  I left for work at 5:30.
+### 3/29/2020
+I woke up at 8am and made coffee. Harper and Palmer woke up by 8:30 and then I made waffles with them.  At about 10am I started inflating balloons to put on my car for the drive-by birthday party of Palmer's friend, Grayson. At 10:30 I went outside and taped a "happy birthday" banner and about 12 balloons to my truck.  At 11am, after insisting that all of us go around the corner to wish him happy birthday, everyone got in the truck and I downloaded a birthday song to play for Grayson as we arrived at his house.  
+
 ### 3/28/2020
 I woke up at 730am, called Lachelle's number (no answer), then texted her asking whether I needed to report my car stolen 
 
@@ -18,7 +23,7 @@ I ate breakfast and then Harper woke-up so I helped her get cereal.  I then unlo
 
 [Lachelle's response, sigh....](https://drive.google.com/file/d/1fmRihaVr_jCllcaxol4M_0m8YBLrw5A6/view)
 
-At noon I instructed Tyler on how to make waffle/pancake batter since he wanted waffles.  I then made hot dogs for lunch for Harper and Palmer.  Lachelle returned at about 7 pm.
+At noon I instructed Tyler on how to make waffle/pancake batter since he wanted waffles.  I then made hot dogs for lunch for Harper and Palmer.  I played with Harper and Palmer off and on until dinner. Lachelle returned at about 7 pm.  I made gumbo in the pressure cooker so there would be food for a few days in the refridgerator.  
 
 ### 3/27/2020
 I woke up at 5am and left for work at 5:30am went to work. I returned home at 430pm, Lachelle told me she was taking a nap as soon as I arrived. I made dinner for Harper and Palmer and I at 6pm.  At around 10pm, Lachelle cam down to the office and asked me for my car keys., stating that she needed to go take a drive.  I put everyone to bed at 1030pm and went to sleep.

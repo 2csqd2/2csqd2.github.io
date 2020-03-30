@@ -1,12 +1,17 @@
 # Journal Entry
 <!-- TOC depthFrom:2 -->
 
+- [April](#april-2020)
 - [March](#march-2020)
 - [February](#february-2020)
 
 <!-- /TOC -->
 
+## April 2020
+
 ## March 2020
+### 3/31/2020
+
 ### 3/30/2020
 I woke up at 5am after hearing someone awake upstairs.  I left for work at 5:30.
 ### 3/29/2020

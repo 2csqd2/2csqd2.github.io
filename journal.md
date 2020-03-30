@@ -13,7 +13,7 @@
 ### 3/31/2020
 
 ### 3/30/2020
-I woke up at 5am after hearing someone awake upstairs.  I left for work at 5:30.
+I woke up at 5am after hearing someone awake upstairs.  I left for work at 5:30.  Lachelle sent me a text asking what time I would be returning, since she had some errands to run.  I responded 4-4:15.  I returned home at 4:20.
 ### 3/29/2020
 I woke up at 8am and made coffee. Harper and Palmer woke up by 8:30 and then I made waffles with them.  At about 10am I started inflating balloons to put on my car for the drive-by birthday party of Palmer's friend, Grayson. At 10:30 I went outside and taped a "happy birthday" banner and about 12 balloons to my truck.  At 11am, after insisting that all of us go around the corner to wish him happy birthday, everyone got in the truck and I downloaded a birthday song to play for Grayson as we arrived at his house.  
 

@@ -11,6 +11,7 @@
 
 ## March 2020
 ### 3/31/2020
+I woke up at 7:30 and lingered around the house until 9:30 when I left for work.  I made Palmer breakfast since he woke-up and got dressed first.
 
 ### 3/30/2020
 I woke up at 5am after hearing someone awake upstairs.  I left for work at 5:30.  Lachelle sent me a text asking what time I would be returning, since she had some errands to run.  I responded 4-4:15.  I returned home at 4:20.

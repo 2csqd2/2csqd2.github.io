@@ -11,13 +11,13 @@
 
 ## March 2020
 ### 3/31/2020
-I woke up at 7:30 and lingered around the house until 9:30 when I left for work.  I made Palmer breakfast since he woke-up and got dressed first.  I returned at 4:45.  Lachelle went out to "run errands" shortly after I returned.  I played indoor volleyball with the kids and help Harper get setup for her zoom dance class.  I ordered pizzas for dinner and went back to playing with the kids.  The kids and I ate at about 7pm.  Lachelle returned at ## from running errands.
+I woke up at 7:30 and lingered around the house until 9:30 when I left for work.  I made Palmer breakfast since he woke-up and got dressed first.  I returned at 4:45pm.  Lachelle went out to "run errands" shortly after I returned.  I played indoor volleyball with the kids and help Harper get setup for her zoom dance class.  I ordered pizzas for dinner and went back to playing with the kids.  The kids and I ate at about 7pm.  Lachelle returned at ## from running errands.
 
 ### 3/30/2020
-I woke up at 5am after hearing someone awake upstairs.  I left for work at 5:30.  Lachelle sent me a text asking what time I would be returning, since she had some errands to run.  I responded that it would be about 4-4:15pm.  I returned home at 4:20pm.  She went out and came back a few hours later with a few grocery items.
+I woke up at 5am after hearing someone awake upstairs.  I left for work at 5:30am.  Lachelle sent me a text asking what time I would be returning, since she had some errands to run.  I responded that it would be about 4-4:15pm.  I returned home at 4:20pm.  She went out and came back a few hours later with a few grocery items.
 
 ### 3/29/2020
-I woke up at 8am and made coffee. Harper and Palmer woke up by 8:30 and then I made waffles with them.  At about 10am I started inflating balloons to put on my car for the drive-by birthday party of Palmer's friend, Grayson. At 10:30 I went outside and taped a "happy birthday" banner and about 12 balloons to my truck.  At 11am, after insisting that all of us go around the corner to wish him happy birthday, everyone got in the truck and I downloaded a birthday song to play for Grayson as we arrived at his house.  
+I woke up at 8am and made coffee. Harper and Palmer woke up by 8:30am and then I made waffles with them.  At about 10am I started inflating balloons to put on my car for the drive-by birthday party of Palmer's friend, Grayson. At 10:30am I went outside and taped a "happy birthday" banner and about 12 balloons to my truck.  At 11am, after insisting that all of us go around the corner to wish him happy birthday, everyone got in the truck and I downloaded a birthday song to play for Grayson as we arrived at his house.  
 
 ### 3/28/2020
 I woke up at 730am, called Lachelle's number (no answer), then texted her asking whether I needed to report my car stolen 

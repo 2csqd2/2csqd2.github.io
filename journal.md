@@ -11,10 +11,11 @@
 
 ## March 2020
 ### 3/31/2020
-I woke up at 7:30 and lingered around the house until 9:30 when I left for work.  I made Palmer breakfast since he woke-up and got dressed first.
+I woke up at 7:30 and lingered around the house until 9:30 when I left for work.  I made Palmer breakfast since he woke-up and got dressed first.  I returned at 4:45.  Lachelle went out to "run errands" shortly after I returned.  I played indoor volleyball with the kids and help Harper get setup for her zoom dance class.  I ordered pizzas for dinner and went back to playing with the kids.  The kids and I ate at about 7pm.  Lachelle returned at ## from running errands.
 
 ### 3/30/2020
-I woke up at 5am after hearing someone awake upstairs.  I left for work at 5:30.  Lachelle sent me a text asking what time I would be returning, since she had some errands to run.  I responded 4-4:15.  I returned home at 4:20.
+I woke up at 5am after hearing someone awake upstairs.  I left for work at 5:30.  Lachelle sent me a text asking what time I would be returning, since she had some errands to run.  I responded that it would be about 4-4:15pm.  I returned home at 4:20pm.  She went out and came back a few hours later with a few grocery items.
+
 ### 3/29/2020
 I woke up at 8am and made coffee. Harper and Palmer woke up by 8:30 and then I made waffles with them.  At about 10am I started inflating balloons to put on my car for the drive-by birthday party of Palmer's friend, Grayson. At 10:30 I went outside and taped a "happy birthday" banner and about 12 balloons to my truck.  At 11am, after insisting that all of us go around the corner to wish him happy birthday, everyone got in the truck and I downloaded a birthday song to play for Grayson as we arrived at his house.  
 
@@ -51,7 +52,7 @@ I woke up at 7 and went to work, returning home at 4:30 pm.  I made noodles and 
 [Walk-up @ 440 next morning](https://drive.google.com/open?id=1VN29dVpSNlN5YsP0PD_grUuHkbWJxxNw)
 
 ### 3/22/2020
-I woke up at 7 and had coffee and read the news.  Harper woke up at 8 am and I made her a ham and egg bagel.  Lachelle woke up around 10.  I played with Palmer and Harper must of the day.  I ordered pizza and wing delivery for dinner and ate at the table with the kids.
+I woke up at 7am and had coffee and read the news.  Harper woke up at 8 am and I made her a ham and egg bagel.  Lachelle woke up around 10.  I played with Palmer and Harper must of the day.  I ordered pizza and wing delivery for dinner and ate at the table with the kids.
 
 ### 3/21/2020
 I woke up at 8:00 am and made oatmeal, cut-up oranges, and yogurt for breakfast.  Lachelle woke up at about 9:00 and left for Richmond by about 9:30am.  The kids and I played indoor games downstairs, watched a  movie and then had hotdogs and turkey sandwiches for lunch.  We then went outside and played tag, skateboard, etc. off and on until it got dark. Tyler went to play with Justin from 4-6pm.  The kids ate leftovers for dinner. Lachelle returned at about 12:30am.
@@ -66,29 +67,29 @@ I woke up at 8:00 am and made all 3 kids oatmeal for breakfast.  I was at home t
 I woke up at 5:45 am ad went to work early, returned home at 3:30 pm.  I made Palmer dinner, Harper and Tyler ate leftovers.  
 
 ### 3/17/2020
-I woke up at 6:30 am along with Palmer.  He asked me if today was a school day.  I told him "no" and for him to go back to sleep.  I left for work shortly after that and returned home at about 4:30pm.  I texted Lachelle in the middle of the day to see how the kids were behaving and to ask if their were any essentials needed from the store.  Lachell made Shepard's Pie for the kids dinner.  I made a salad about 30 minutes after everyone else ate.  I gave Palmer a bath at about 7:30-7:45pm.
+I woke up at 6:30 am along with Palmer.  He asked me if today was a school day.  I told him "no" and for him to go back to sleep.  I left for work shortly after that and returned home at about 4:30pm.  I texted Lachelle in the middle of the day to see how the kids were behaving and to ask if their were any essentials needed from the store.  Lachelle made Shepard's Pie for the kids dinner.  I made a salad about 30 minutes after everyone else ate.  I gave Palmer a bath at about 7:30-7:45pm.
 
 ### 3/16/2020
 I woke up at 6:30 and so did Palmer.  We ate breakfast together.  Everyone stayed at home today because of the "social distance" closing of the school system and businesses.  Harper woke up a little later and fixed breakfast herself, and then setup her Chromebook and school work printouts.  I went through a page of word questions and vocabulary "homophones."  Lachelle and I switched helping the kids with homework, checking their progress, and playing with them outside, while doing work ourselves.
 
-### 3/15/2020
-I woke up at 8am and made pancakes and eggs for the children for breakfast.  Lachelle woke up at about 9:30 and came out of her bed room at 9:500am.  I then started moving contents from my (former) closet to the closet rack I purchased from Target and placed in the basement office (my new room), completed.  Lachelle came to me ay about 1pm asking who I told about our separation and ask me not to speak about it for a few months.  She also started talking about dates... I wasn't following at first, but she discussed the date we had the fight as the separation date.  I agreed and made a calendar appointment  for the *1 March 2020*, as "Agreed Upon First Date of Separation."  I went upstairs in the kitchen and sweep the floor to get away from any further communication. I went outside and played with Palmer and Harper for about an hour.  Then, Palmer, Harper, and I made chocolate chip and pecan cookies.  I went back outside and played baseball with Palmer, Harper, and Tyler for about 30 minutes.  Lachelle watched a movie in the basement with the lights off.
+### 3/15/2020 *****
+I woke up at 8am and made pancakes and eggs for the children for breakfast.  Lachelle woke up at about 9:30 and came out of her bed room at 9:500am.  I then started moving contents from my (former) closet to the closet rack I purchased from Target and placed in the basement office (my new room), completed.  Lachelle came to me ay about 1pm asking who I told about our separation and ask me not to speak about it for a few months.  She also started talking about dates... I wasn't following at first, but she discussed the day we had the fight as the separation date, although we hadn't talked about separation until two weeks later. I think she wanted to try to cover herself for the date she consumated her new relationship.  Anyway, I told her I agreed to the date and made a Google calendar appointment  for the *1 March 2020*, as "Agreed Upon First Date of Separation."  I went upstairs in the kitchen and sweep the floor to get away from any further communication. I went outside and played with Palmer and Harper for about an hour.  Then, Palmer, Harper, and I made chocolate chip and pecan cookies.  I went back outside and played baseball with Palmer, Harper, and Tyler for about 30 minutes.  Lachelle watched a movie in the basement with the lights off.  I slepted in the office on a floor cushion.
 
 ### 3/14/2020
-I picked up Palmer's bike helmet, a clothes rack, and Tyler's bike at two different Target stores @ 8am.  I helped Tyler build his bike an played with Palmer, Harper, and Tyler outside with Eric and Anne (along w/ their childern) until approx. 11am. 
+I picked up Palmer's bike helmet, a clothes rack, and Tyler's bike at two different Target stores @ 8am.  I helped Tyler build his bike an played with Palmer, Harper, and Tyler outside with Eric and Anne (along w/ their childern) until approx. 11am. I built the clothes rack and put it in the office.  Later on that afternoon I finished moving all of my clothes out of the closet into the office. I slepted in the office on a floor cushion.
 
 ### 3/13/2020
-I dropped Harper off at the bus stop and Palmer at CPS.  I went to work and returned home about 5:15.  Lachelle went to work in the afternoon after arriving home at 3:45 the previous night.  Harper and Tyler rode the bus home Lachelle picked up Palmer from CPS.  Lachelle asked me that evening if she minded if I go out with a female co-worker to a club in DC.  I said of course I mind, as a result of recent events.  She returned home at 2:39am
+I dropped Harper off at the bus stop and Palmer at CPS.  I went to work and returned home about 5:15.  Lachelle went to work in the afternoon after arriving home at 3:45 the previous night.  Harper and Tyler rode the bus home Lachelle picked up Palmer from CPS.  Lachelle asked me that evening if she minded if she went out with a female co-worker to a club in DC.  I said of course I mind, as a result of recent events.  She returned home at 2:39am. I slept on the couch in the basement,
 
 [Return next morning](https://drive.google.com/open?id=1fvCXCwUrIYbh69nFRH_nl-_GqQ-sk1mU)
 
 ### 3/12/2020
-I dropped Harper off at the bus stop and Palmer at CPS.  I went to work and returned home about 5:15.  I met with a lawyer from 3:45 to 5:15.  Lachelle picked up Harper and Palmer.  Lachelle took Tyler to practice and picked him up.  Lachelle went out to see a movie (didn't tell me with whom, it was with Phil) at 9pm and returned home at approx. 4 am.
+I dropped Harper off at the bus stop and Palmer at CPS.  I went to work and returned home about 5:15.  I met with a lawyer from 3:45 to 5:15.  Lachelle picked up Harper and Palmer.  Lachelle took Tyler to practice and picked him up.  Lachelle went out to see a movie (didn't tell me with whom, it was with Phil) at 9pm and returned home at approx. 4 am.  I slept on the couch in the basement.
 
 [Return next morning](https://drive.google.com/open?id=1EegCc6NMgruB7V7ewDXrPeq437aanaHD)
 
 ### 3/5/2020
-After Lachelle pickup Tyler from Gymnastics practice she dropped him off at 8:45pm. She left the house with telling me anything and returned home at 5:07am. I turned off the garage door opener on  purpose to make sure the Ring would capture her if and when she returned.  She stayed out with Phil all night, and didn't understand the basic optics of it (a married women spending the night with a man who is not her husband).  She claimed nothing happened, and they went for drinks and then to a cigar bar.
+After Lachelle pickup Tyler from Gymnastics practice she dropped him off at 8:45pm. She left the house without telling me anything and returned home at 5:07am. I turned off the garage door opener on  purpose to make sure the Ring(alarm system) would capture her if and when she returned.  She stayed out with Phil all night, and didn't understand the basic optics of it (a married women spending the night with a man who is not her husband).  She claimed nothing happened, and they went for drinks and then to a cigar bar.  I slept on the couch in the basement.
 
 [Drop off](https://drive.google.com/open?id=1u3tHQqAY6XGDDC6Y1cSAIbifFH-TFj3I)   
 
@@ -96,4 +97,4 @@ After Lachelle pickup Tyler from Gymnastics practice she dropped him off at 8:45
 
 ## February 2020
 ### 2/29/2020
-Lachelle and I had a big fight about a camp brochure which escalated.  I sleep on the couch in the basement that night.  
+Lachelle and I had a big fight about a camp brochure which escalated.  I slept on the couch in the basement that night and never returned to the bedroom.  I was tired of being disrespected and she was nolonger worth any of my effort to even get upset. 

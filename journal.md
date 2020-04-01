@@ -8,10 +8,16 @@
 <!-- /TOC -->
 
 ## April 2020
+### 4/1/2020
+I woke up around 2:20am after hearing walking around upstairs and checked to see if it was the kids.  It was Lachelle.  I went back to sleep and woke up at 4:30am when Palmer walked down stairs into the office and said he couldn't sleep.  I told hime to go get in his mother's bed.  He went back to sleep until 8am when I woke up.  I made coffee, sat in the kitchen for a while.  I then played one game of indoor volleyball with Palmer.  I told Lachelle that I would be returning at 5:15pm in case she needed to plan her "soiree" right before I left for work at 9am.
 
 ## March 2020
 ### 3/31/2020
-I woke up at 7:30 and lingered around the house until 9:30 when I left for work.  I made Palmer breakfast since he woke-up and got dressed first.  I returned at 4:45pm.  Lachelle went out to "run errands" shortly after I returned.  I played indoor volleyball with the kids and help Harper get setup for her zoom dance class.  I ordered pizzas for dinner and went back to playing with the kids.  The kids and I ate at about 7pm.  Lachelle returned at ## from running errands.
+I woke up at 7:30 and lingered around the house until 9:30 when I left for work.  I made Palmer breakfast since he woke-up and got dressed first.  I returned at 4:45pm.  Lachelle went out to "run errands" shortly after I returned.  I played indoor volleyball with the kids and help Harper get setup for her zoom dance class.  I ordered pizzas for dinner and went back to playing with the kids.  The kids and I ate at about 7pm.  Lachelle returned at 12:16am on 4/1 from running errands.
+
+[drive up](https://drive.google.com/open?id=1-v_j3oz9m1f724oO-u0ZMxjdj4OCZEZH)
+
+[walking in](https://drive.google.com/open?id=11y2U97AXwTEnCDC7qIerEuqK5YWMCVrX)
 
 ### 3/30/2020
 I woke up at 5am after hearing someone awake upstairs.  I left for work at 5:30am.  Lachelle sent me a text asking what time I would be returning, since she had some errands to run.  I responded that it would be about 4-4:15pm.  I returned home at 4:20pm.  She went out and came back a few hours later with a few grocery items.

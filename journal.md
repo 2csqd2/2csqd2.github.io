@@ -9,7 +9,18 @@
 
 ## April 2020
 ### 4/4/2020
-I woke up at 8:30am and made toast and jelly for Palmer, and a bagel for Harper.  Lachelle returned at 8:53am (see below) and took a shower.   
+I had a unexpected visitor in the fron of the house last night.  Usually its a heard of dear, but this time it was an older man stumbling...he was not one of the neighbors and he did not drive up. I didn't hear any of this when it happened between 4:10 and 4:20 am.  I saw it when I went to check the cameras for adding timelines to my journal.  This is just another example of what the only adult in the house must consider in keeping his family safe and healthy.
+
+[Stranger stumbling up the walkway](https://drive.google.com/open?id=1UBG2ieIrZ1O36fTxdR3XUSejAVvgf-_f)
+
+[Stranger trying to open door first, and then ring door bell](https://drive.google.com/open?id=11J3nf-ytkd3VrpJmoVZ3T-Gaf8YTj4tV)
+
+[Stranger sitting on the steps](https://drive.google.com/open?id=1gaUK6iZ4Z2wYrwo4RHqYkSIe9RZIzyDb)
+
+[Stranger stumbling away](https://drive.google.com/open?id=1JIGBclx596RfuvpkwjWutuSqdyi1v1O3)
+
+
+I woke up at 8:30am and made toast and jelly for Palmer, and a bagel for Harper.  Lachelle returned at 8:53am (see below) and went to take a shower (I stayed in the office updating this journal).   
 
 [Car Return](https://drive.google.com/open?id=1zL0vT9S1VtonWirfoswi18fNC_zehKoD)
 

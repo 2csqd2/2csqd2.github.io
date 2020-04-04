@@ -8,11 +8,24 @@
 <!-- /TOC -->
 
 ## April 2020
-### 4/1/2020
-I woke at 5am and left for work by 5:30am.  
+### 4/4/2020
+I woke up at 8:30am and made toast and jelly for Palmer, and a bagel for Harper.  Lachelle returned at 8:53am (see below) and took a shower.   
+
+[Car Return](https://drive.google.com/open?id=1zL0vT9S1VtonWirfoswi18fNC_zehKoD)
+
+[Walk out of garage](https://drive.google.com/open?id=11tDbsy-hRyB4R2eMgr6WOyOIdgSPJByf)
+
+The rest of the day...
+
+### 4/3/2020
+I woke at 5am and left for work by 5:30am.  Palmer, Harper, and I made a batch of dough and made a homemade pizza for dinner with peas and put two batches of dough in the refridgerator for later in the week.  Tyler had leftover Popeyes that I brought home from lunch. Lachelle said she needed to "go for a drive," and left at 5:45pm.  I turned the alarm on shortly after knowing that she would be back in the morning.
+
+[Left](https://drive.google.com/open?id=1zAaDlQm0bFubwBZ7LsQYfdWXgNvD4cXN)
 
 ### 4/2/2020
-I woke up around 8:30am and stayed at home today.  For lunch I made PB&J sandwiches.  After lunch, Harper, Palmer, and I made bread dough for 2 loafs.  Then we let the dough sit while the finished their school work. I made a mexican pizza which Harper and I ate for dinner. Lachelle made a tuna caserole which Palmer and Tyler ate.  Lachelle talked to loudly on the phone in the bedroom (above the office) until 12:30am, interrupting my sleep.
+I woke up around 8:30am and stayed at home today.  For lunch I made PB&J sandwiches.  After lunch, Harper, Palmer, and I made bread dough for 2 loafs.  Then we let the dough sit while the finished their school work. I made a mexican pizza which Harper and I ate for dinner. Lachelle made a tuna caserole which Palmer and Tyler ate.  Lachelle talked to loudly on the phone in the bedroom (above the office) until 12:30am, interrupting my sleep.  I heard her say she "would be alright, and that she had plenty of boose and pills if she needed them," to whomever she was speaking with on the phone.  
+
+[Abnormal amount, usually one or two bottles of wine. In addition she bought another bottle of something dark and two cases of beer](https://drive.google.com/open?id=1yFgfLU9Ovnx4p_yO3M2DPdOHkvraRTQP)
 
 ### 4/1/2020
 I woke up around 2:20am after hearing walking around upstairs and checked to see if it was the kids.  It was Lachelle.  I went back to sleep and woke up at 4:30am when Palmer walked down stairs into the office and said he couldn't sleep.  I told hime to go get in his mother's bed.  He went back to sleep until 8am when I woke up.  I made coffee, sat in the kitchen for a while.  I then played one game of indoor volleyball with Palmer.  I told Lachelle that I would be returning at 5:15pm in case she needed to plan her "soiree" right before I left for work at 9am.  I returned home at 4:30. Harper, Palmer, and I made homemade pizza with a dough kit I bought the day before.  Since Tyler had two matresses on his bed, I burrowed one, putting it in the office and slept on that instead of the floor.

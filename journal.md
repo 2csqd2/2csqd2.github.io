@@ -134,7 +134,8 @@ I woke up at 8:30am and made toast and jelly for Palmer, and a bagel for Harper.
 
 Tyler, Palmer, and I went outside at about 10am to do yard work.  Tyler cut the grass, I trimmed, and Palmer raked grass clippings. I made the kids Ramen noodles and miso soup for lunch.  Lachelle woke up at around 12:30pm.  I played with Palmer and Harper outside for a little bit.  When the kids went back inside, I painted the white trim on the garage and the white parts of the front steps.  I helped Palmer and Harper make pizza for dinner.
 
-
+### 4/5/2020
+IPalmer woke me up around 8:30am this morning and I finally got up by 9am.  I made pancakes with him and Harper since it was Sunday. We played off an on until lunch time.  I washed my car right befor lunch (prep. for sale).  I made HArper noodles and Palmer a PB&J for lunch.  In the afternoon, Plamer asked me to teach him how to skateboard so I spent about an hour outside showing him and going back and forth with easy tricks.  L sat in the basement with Disney movies playing crying off and on.  Harper watched TV in the sun room and played on the toy 4 wheeler.  Tyler stayed mostly in his room and the sun room playing tag with Palmer and Harper.  I ordered Paisanos sandwiches for dinner.
 
 
 

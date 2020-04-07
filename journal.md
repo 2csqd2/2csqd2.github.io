@@ -137,8 +137,11 @@ Tyler, Palmer, and I went outside at about 10am to do yard work.  Tyler cut the 
 ### 4/5/2020
 IPalmer woke me up around 8:30am this morning and I finally got up by 9am.  I made pancakes with him and Harper since it was Sunday. We played off an on until lunch time.  I washed my car right befor lunch (prep. for sale).  I made HArper noodles and Palmer a PB&J for lunch.  In the afternoon, Plamer asked me to teach him how to skateboard so I spent about an hour outside showing him and going back and forth with easy tricks.  L sat in the basement with Disney movies playing crying off and on.  Harper watched TV in the sun room and played on the toy 4 wheeler.  Tyler stayed mostly in his room and the sun room playing tag with Palmer and Harper.  I ordered Paisanos sandwiches for dinner.
 
+### 4/5/2020
+Lachelle asked to speak to me around 9:30-10:00am.  She asked if I had found a lawyer so that she could review settlement documents this week while she was on leave from work.  I reminded her that on the evening of 3/15 I asked her if she would be willing to review documents and make edits so that we could work through the settlement process together and only go back to lawyers for items/issues where we firmly disagreed, and she said no and insisted on going through the mediation process.  I asked her if she remembered this, she said no.  I told her I didn't want to work directly with her on anything at the moment and that I had my own priorities to deal with this week.  I asked her to leave the office out of respect for the distance that was mutually agreed upon. She said no, not until I gave her the name of my lawyer.  I told her that I have not formally retained a lawyer, am close to doing so, and I would give her the name eventually.  We went back and forth for 10 more minutes and then I got up and left as she screamed that I was walking away while she was talking to me.  I went upstairs, then outside.
 
-
+### 4/7/2020
+I woke up at 5 am since Palmer woke up early. I made Harper and Palmer lunch, then left at 1:15 to get my estate planning documents notarized and vehicle sale appraisals.  When I came back home at about 3:30p, I played with Palmer outside on his bike (me on skateboard), and played baseball.  At about 4pm I played the pie face game with Harper and Palmer.  I ate dinner at about 5pm and supervised Harper warming up her leftovers (pizza), since she was eating early because she had two (2) zoom classes.  I made Palmer's dinner at 6:00pm after playing floor hockey with him in th basement.
 
 
 

@@ -145,12 +145,17 @@ I woke up at 5 am since Palmer woke up early. I made Harper and Palmer lunch, th
 
 [Went to the garage to get something, then walked to the front of house to drive the Nissan](https://drive.google.com/open?id=1umaXPXmnqz_2MZBKVDGKtbyjfW4d4EHC)
 
+[Normal arrival]()
+
+### 4/8/2020
+I woke up at 8:30 am and made Palmer and Harper eggs and ham.  Lachelle came through the kitchen and I told her I didn't want to engage in small talk.  It was 80 degrees early in the morning so I went outside to play with Palmer on his bike (me on skateboard), and play baseball.  I made all the kids microwave pizza and green beans for dinner.  Each had ice cream and then went to watch an evening movie.  I ran Palmer's bath water and made bubbles for him.
+
+### 4/9/2020
+I woke up at 9am this morning and was followed by Palmer shortly thereafter.  We went upstairs and then came back to the basement, deciding we wer not hungry at the moment.  At around 11 am , I made Palmer an egg, toast with jelly, and Rice Krispies cereal.  Around noon Lachelle came through the kitchen and asked if I was ready to look at and discuss separation agreement items.  I told her that I didn't have confidence that she would remember what we discussed and I didn't want to waste my time.  I told her that I still had other items that I was working on completing, and that was my priority; then I would like some down time to relax before I go back to work.  I told her that I would appreciate it if she would just leave me alone until she contacted lawyers/mediators and obtained their rates and retainer fees (according to our last discusseionon the 7th).  I also asked her why she paused her phone service (so no one could call her).  I went back down to the office.  Sometime later, I called Lachelle's mother from the house phone to let her know that her daughter changed her phone service and then paused her phone line (appears to be disconnected when you call it), and if she needed to reach the kids or me, she could use the house phone (only 2 relatives have the house number) or my number.  I just wanted it to be clear that this was not something I did.  I read nost of the afternoon, while the kids watched a movie and played.  It was cold outside, so they only went out once for about 30-40 minutes to play on the tumble track.  I made Harper and Palmer rice and beans for dinner.  The had ice cream and whip cream for desert.    We played the game pie face after dinner.  Palmer went to sleep at his regular time (before the Coronavirus stay-at-home order) of 8:30pm.
 
 
-
-
-
-
+### 4/10/2020
+I woke up at 8am.  At about 10am all the kids and I went for a drive to Starbucks and got breakfast, then we drove through DC and through National Harbor before returning home.  We returned around noon and Harper road her bike.  I setup a paint station for Palmer so that he could paint a picture (like the canvas Harper made the day before).
 
 
 

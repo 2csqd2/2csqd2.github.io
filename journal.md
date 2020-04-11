@@ -157,7 +157,8 @@ I woke up at 9am this morning and was followed by Palmer shortly thereafter.  We
 ### 4/10/2020
 I woke up at 8am.  At about 10am all the kids and I went for a drive to Starbucks and got breakfast, then we drove through DC and through National Harbor before returning home.  We returned around noon and Harper road her bike.  I setup a paint station for Palmer so that he could paint a picture (like the canvas Harper made the day before).
 
-
+### 4/11/2020
+I woke up at 9:30am and Palmer and Harper shortly thereafter.  I helped Harper make toast and Palmer ate yogurt.   Harper went outside to ride her bike early in the morning since she got dressed as soon as she woke up.  Palmer went outside about an hour later to play on his bike, play hop-scotch, and run on the tumble track.  I woke Tyler up at 10:30am so he wouldn't sleep too late. For lunch I made Harper miso soup and noodles, and Palmer PBJ with apple slices.
 
 
 

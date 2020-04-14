@@ -161,4 +161,10 @@ I woke up at 8am.  At about 10am all the kids and I went for a drive to Starbuck
 I woke up at 9:30am and Palmer and Harper shortly thereafter.  I helped Harper make toast and Palmer ate yogurt.   Harper went outside to ride her bike early in the morning since she got dressed as soon as she woke up.  Palmer went outside about an hour later to play on his bike, play hop-scotch, and run on the tumble track.  I woke Tyler up at 10:30am so he wouldn't sleep too late. For lunch I made Harper miso soup and noodles, and Palmer PBJ with apple slices.  At 12:30 I went upstair in the kitchen to get some chips, and Lachelle walked in and asked me "are we going to be ok."  I told her that it was not respectful for her to approach me at this time of night to try to have a conversation of that type.  She yelled at me stating, "why can't you just be in the moment?"  I was finished putting some chips on a saucer, so I went back downstairs to the office.
 
 ### 4/12/2020
-I woke up at 9am and made Palmer and Harper oatmeal.  The kids played all over the house, while I cut my hair.  I washed Palmer and Harper's clothes and folded them (since their laundry baskets were full).  At 11:47 I was hungry so I made breakfast burritos for Harper, Tyler and I.  I made Palmer a egg bagel with carrot sticks for lunch.  
+I woke up at 9am and made Palmer and Harper oatmeal.  The kids played all over the house, while I cut my hair.  I washed Palmer and Harper's clothes and folded them (since their laundry baskets were full).  At 11:47 I was hungry so I made breakfast burritos for Harper, Tyler and I.  I made Palmer a egg bagel with carrot sticks for lunch. 
+
+### 4/13/2020
+I woke up at 8:30am and made coffee.  Palmer woke-up at about 9am and Harper 9:30am. At about 10:30 I made breakfast burritos for all the kids.  There were intermittent rain showers (heavy) all day, so no one spent much time outside. 
+
+### 4/13/2020
+I woke up at 4:30am and placed a grocery order for Aldi-Instacart for delivery today. I left the house for work at 6am. 

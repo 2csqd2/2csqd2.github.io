@@ -166,5 +166,8 @@ I woke up at 9am and made Palmer and Harper oatmeal.  The kids played all over t
 ### 4/13/2020
 I woke up at 8:30am and made coffee.  Palmer woke-up at about 9am and Harper 9:30am. At about 10:30 I made breakfast burritos for all the kids.  There were intermittent rain showers (heavy) all day, so no one spent much time outside. 
 
-### 4/13/2020
-I woke up at 4:30am and placed a grocery order for Aldi-Instacart for delivery today. I left the house for work at 6am. 
+### 4/14/2020
+I woke up at 4:30am to place a grocery order for Aldi-Instacart delivery on Wednesday. I left for work at about 5:30am and returned at 5pm.  I brought home leftover lunch which Harper ate for dinner.  Lachelle cooked for Palmer and Tyler. I put Palmer to bed and eventually went to sleep at about 11:30pm. 
+
+### 4/15/2020
+I woke up at 5:30am to go to work.  I returned home at ... 

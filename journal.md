@@ -171,3 +171,9 @@ I woke up at 4:30am to place a grocery order for Aldi-Instacart delivery on Wedn
 
 ### 4/15/2020
 I woke up at 5:30am to go to work.  I returned home at 3pm.  The kids were outside playing and were just about done, so I made them a snack as soon as I got home.  I was trying to help Harper connect to her dance lesson (via Zoom) from about 3:15 to 3:45 due to connectivity issues.  She ended up missing most of the first one, but had another session at 4:45pm.  I played Jenga with Tyler and Palmer for a little bit after Harper got in her class.  At about 5:45 Palmer said he was hungry, so I went upstairs to make all of the kids dinner.  Lachelle said she was going to get Popeyes for dinner for them for her Birthday.  I went downstairs and played more Jenga with Tyler and Palmer until Lachelle returned.  I stayed in the office for Lachelle's b-day with the kids (while they ate dinner, sang Happy Birthday song, and ate cup cakes).  Later in the evening I played Monopoly with Palmer until 9pm, when I setup the shower for him so that he could get ready for bed.  Afterwards, I made popcorn and Harper and I ate it while watching some science show in the office until about 1030pm, when it was Harper's bedtime.  I told Harper and Tyler goodnight and went to bed shortly after 1030pm.
+
+### 4/16/2020
+I woke up at 7:30 and went to work.  I returned home at about 4pm.
+
+### 4/17/2020
+I woke up at 8am and made Harper an eggs and toast (she asked me to do that the night before, even if I left for work early).  I retruned home at about 4:30pm, where the kids were playing outside.  Since they were supposed to play outside for about and hour, I took a quick shower and then prepared Harper and Palmer's dinner (leftover chicken and wild rice soup).  After dinner I made a microwave cupcake for Palmer since he kept asking me for one (we actually made 4, HArper and ate one too).

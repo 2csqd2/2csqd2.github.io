@@ -185,4 +185,7 @@ Palmer woke me up at about 9am so I went upstairs to make the batter for waffles
 I woke up at 8am.    Lachelle made dinner for the kids.
 
 ### 4/20/2020
-I woke up at 7:30 and helped Harper get her breakfast,then I left for work.
+I woke up at 7:30 and helped Harper get her breakfast,then I left for work.  I made dinner for Palmer and Harper (rice and mixed vegetables).  After dinner Harper, Palmer and I made microwave chocolate cupcakes from scratch.   I then watched the movie 'Mirror Mirror' with Harper.  After the movie was over I gave Palmer a bath.
+
+### 4/21/2020
+I woke up at 4:00am anf got ready to go to work.  

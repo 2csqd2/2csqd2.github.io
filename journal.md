@@ -189,3 +189,9 @@ I woke up at 7:30 and helped Harper get her breakfast,then I left for work.  I m
 
 ### 4/21/2020
 I woke up at 4:00am anf got ready to go to work.  
+
+### 4/23/2020
+I woke up at 7:00am and got ready to go to work.  I returned home at ~ 3:00pm and played hide and seek with Harper and Palmer.  I made a salad for dinner and cooked a pizza at about 4:30pm since I was hungry.
+
+### 4/24/2020
+I woke up at 7:00am and got ready to go to work.  This week went by fast, I thought today was Saturday.

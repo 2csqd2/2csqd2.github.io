@@ -194,4 +194,7 @@ I woke up at 4:00am anf got ready to go to work.
 I woke up at 7:00am and got ready to go to work.  I returned home at ~ 3:00pm and played hide and seek with Harper and Palmer.  I made a salad for dinner and cooked a pizza at about 4:30pm since I was hungry.
 
 ### 4/24/2020
-I woke up at 7:00am and got ready to go to work.  This week went by fast, I thought today was Saturday.
+I woke up at 7:00am and got ready to go to work.  This week went by fast, I thought today was Saturday.  I borugh two 18" pizzas home for dinner, that the kids ate with the leftover salad from the night before.  They had watermelon and cupcakes for dinner.  I played pool with Harper after dinner.
+
+### 4/25/2020
+I woke up at 9:00am and made pancakes and bacon for the kids (since Palmer asked the night before).  I played off and on with Harper and Palmer and watched various shows and movies.  At about noon we went outside and played for about an hour.  I showed Tyler how to use the oven, and he warmed chicken nuggets for dinner around 5pm.

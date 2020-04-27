@@ -198,3 +198,6 @@ I woke up at 7:00am and got ready to go to work.  This week went by fast, I thou
 
 ### 4/25/2020
 I woke up at 9:00am and made pancakes and bacon for the kids (since Palmer asked the night before).  I played off and on with Harper and Palmer and watched various shows and movies.  At about noon we went outside and played for about an hour.  I showed Tyler how to use the oven, and he warmed chicken nuggets for dinner around 5pm.
+
+### 4/25/2020
+I woke up at around 8:30am and made Palmer a bagel while I was getting food and coffee. Harper woke up about 30 minutes later, so I made her oatmeal.  I played off and on with Harper and Palmer and watched various shows and movies.  At about noon we went outside and played for about an hour.  Tyler made turkey chilli for dinner with guidance.

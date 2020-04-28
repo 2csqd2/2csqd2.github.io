@@ -203,4 +203,5 @@ I woke up at 9:00am and made pancakes and bacon for the kids (since Palmer asked
 I woke up at around 8:30am and made Palmer a bagel while I was getting food and coffee. Harper woke up about 30 minutes later, so I made her oatmeal.  I played off and on with Harper and Palmer and watched various shows and movies.  At about noon we went outside and played for about an hour.  Tyler made turkey chilli for dinner with guidance.
 
 ### 4/27/2020
-I woke up at around 5am and got ready to go to work.
+I woke up at around 5am and got ready to go to work.  I returned home at about 3:30pm.  I played soccer with PAlmer and Harper and then pool later that evening with Palmer and Tyler.  Lachelle made spaghetti for kids dinner. 
+

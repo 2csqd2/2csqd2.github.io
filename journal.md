@@ -205,3 +205,12 @@ I woke up at around 8:30am and made Palmer a bagel while I was getting food and 
 ### 4/27/2020
 I woke up at around 5am and got ready to go to work.  I returned home at about 3:30pm.  I played soccer with PAlmer and Harper and then pool later that evening with Palmer and Tyler.  Lachelle made spaghetti for kids dinner. 
 
+### 4/28/2020
+I woke up at around 5:30am and got ready to go to work.  I returned home at about 3:30pm.  I made chocolate chip cookies with Palmer and Harper before dinner since we were bored and Harper had some time before her next dance class.   I made Palmer dinner, Lachelle fixed Harper's dinner.  Lachelle and I got into an argument later and had back and forths for most of the evening until about 10:30 when I went to sleep.
+
+
+### 4/28/2020
+I woke up at 7am...
+
+
+

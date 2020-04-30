@@ -208,9 +208,8 @@ I woke up at around 5am and got ready to go to work.  I returned home at about 3
 ### 4/28/2020
 I woke up at around 5:30am and got ready to go to work.  I returned home at about 3:30pm.  I made chocolate chip cookies with Palmer and Harper before dinner since we were bored and Harper had some time before her next dance class.   I made Palmer dinner, Lachelle fixed Harper's dinner.  Lachelle and I got into an argument later and had back and forths for most of the evening until about 10:30 when I went to sleep.
 
+### 4/29/2020
+I woke up at5:30am with my back hurting so bad.  I  got dressed slowly and went to work.  I returned home at 3pm.  Since the kids were all engaged in their activities I laid down (on my back, the only way it didn't hur) until about 4:30pm.  Lachelle got the kids dinner ready. After dinner, I tried to play a few games of pool with Tyler and Palmer, but that didn't go well.  I had Palmer get ready for bed at 8pm instead of 8:30pm because I was planning on going to bed early.  I laid down shortly thereafter for about an hour and woke up.  Lachelle came down into the office and asked me if I hated her.  I told her that I would prefer if we scheduled a time once a week to talk about our stuff, and that she was violating the only space I have left to myself since I did not invite her in the room.  She went a head and asked me three more times and I reiterated that I would prefer not to discusss this at the current time. I ended up staying awake until about 12:30pm, when I was able to go back to sleep.
 
-### 4/28/2020
-I woke up at 7am...
-
-
-
+### 4/30/2020
+I woke up at 6am and went to work, my back felt slightly better, but still pain...

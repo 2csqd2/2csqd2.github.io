@@ -218,3 +218,8 @@ I woke up at 6am and went to work, my back felt slightly better, but still pain.
 $1,639.22 monthly." This represents half (even excluding other expenses that should be added) of the household living expenses, and it is under $20,000 a year.  She said she can't afford that, I think it is pathetic that after 14 years of marriage where all I asked her to do was consistently contribute to one (1) utility bill / she couldn't or wouldn't...as an adult, she needs to do better.
 
 ## May 2020
+### 5/1/2020
+I woke up at 5am and went to work.  I returned home at 12:45pm and bought two pizzas, a salad, cookies, a brownie, and a canoli for lunch.  The weather was great, so I came home early to spend some time outside with the kids.  We played off and on all afternoon, and in the evening they made a fort in the basement.  
+
+### 5/2/2020
+I woke up at 8:30am and made Palmer and Harper oatmeal with brown sugar and cinnamon.

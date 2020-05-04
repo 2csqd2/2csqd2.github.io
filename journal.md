@@ -224,5 +224,8 @@ I woke up at 5am and went to work.  I returned home at 12:45pm and bought two pi
 ### 5/2/2020
 I woke up at 8:30am and made Palmer and Harper oatmeal with brown sugar and cinnamon.I made waffle breakfast sandwichs for lunch (since I wanted waffles).  Afterwards, I mowed the back yard and swept the patio.  The kids and I played hide and seek for a while then I went back inside while they played.  I order takeout from the Pho restaurant around the corner (we usually have it about once a month) since we haven't had it in 3-4 months.
 
-### 5/32020
-I woke up at 7am. Harper and Palmer finally woke-up at 9am.
+### 5/3/2020
+I woke up at 7am. Harper and Palmer finally woke-up at 9am.  It rained all morning, so Harper and I played around the house.  At noon we made chocolate chip cookies using the Hilton recipe.  Harper, Palmer, and I bounced around each room, playing Xbox, PC games, watching shows/movies all afternoon.  
+
+### 5/4/2020
+I woke up at 6amand went to work.

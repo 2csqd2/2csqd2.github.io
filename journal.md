@@ -228,4 +228,4 @@ I woke up at 8:30am and made Palmer and Harper oatmeal with brown sugar and cinn
 I woke up at 7am. Harper and Palmer finally woke-up at 9am.  It rained all morning, so Harper and I played around the house.  At noon we made chocolate chip cookies using the Hilton recipe.  Harper, Palmer, and I bounced around each room, playing Xbox, PC games, watching shows/movies all afternoon.  
 
 ### 5/4/2020
-I woke up at 6amand went to work.
+I woke up at 6am and went to work.  I returned home at about 3:30pm and wandered around the house since all the kids were engaged in their school work (nice).  At about 4:45pm I made dinner for all the kids and myself (rice, spanish style beans, and grilled seasoned cabbage). The kids had pie for dessert. Harper and Palmer piled into the office with me afterwards for most of the evening to watch shows and do arts and crafts (Mother's Day gifts).

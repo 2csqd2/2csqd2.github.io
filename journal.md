@@ -229,3 +229,9 @@ I woke up at 7am. Harper and Palmer finally woke-up at 9am.  It rained all morni
 
 ### 5/4/2020
 I woke up at 6am and went to work.  I returned home at about 3:30pm and wandered around the house since all the kids were engaged in their school work (nice).  At about 4:45pm I made dinner for all the kids and myself (rice, spanish style beans, and grilled seasoned cabbage). The kids had pie for dessert. Harper and Palmer piled into the office with me afterwards for most of the evening to watch shows and do arts and crafts (Mother's Day gifts).
+
+### 5/5/2020
+I woke up at 6am and left for work.  I arrived back home at 4:30pm.  Lachelle already made dinner for the kids so I fixed Palmer and Harper's plates so they could eat before Harper's 6pm dance class. I ran Palmer's bath water and made bubbles while Lachelle mad his bed. I supervised Palmer (mostly playing) while taking his bath.  Afterwards, Palmer and I played a game until bedtime.
+
+### 5/4/2020
+I woke up at 8:30am and made oatmeal for Harper and Palmer.  At 9:15am I woke Tyler up and asked him about their daily school schedule, as a few weeks ago everyone was up by 8:30am - then they would eat breakfast and login to their online classrooms.  Tyler told me that scholl starts whenever their Mommy wakes up.  So... I left for work at 9:25am.

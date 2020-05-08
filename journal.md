@@ -237,4 +237,7 @@ I woke up at 6am and left for work.  I arrived back home at 4:30pm.  Lachelle al
 I woke up at 8:30am and made oatmeal for Harper and Palmer.  At 9:15am I woke Tyler up and asked him about their daily school schedule, as a few weeks ago everyone was up by 8:30am - then they would eat breakfast and login to their online classrooms.  Tyler told me that school starts whenever their Mommy wakes up.  So... I left for work at 9:25am.  I returned home at about 4:30pm and checked to see what everyone was working on. Since they were all doing work (or had completed it), I decided to do laundry.  I ordered burgers and salads for me and the kids.
 
 ### 5/7/2020
+I woke up at 5:30am and went to work. I arrived back home at 4pm.  Lachelle made dinner for the kids at around 6pm.
+
+### 5/8/2020
 I woke up at 5:30am and went to work.

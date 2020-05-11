@@ -240,4 +240,13 @@ I woke up at 8:30am and made oatmeal for Harper and Palmer.  At 9:15am I woke Ty
 I woke up at 5:30am and went to work. I arrived back home at 4pm.  Lachelle made dinner for the kids at around 6pm.
 
 ### 5/8/2020
-I woke up at 5:30am and went to work.
+I woke up at 5:30am and went to work.  I brought two pizzas and two subs home for dinner.
+
+### 5/9/2020
+Palmer and I woke up at about 8:15am, he hung around the kitchen while I made pancakes and eggs. Harper wokk up around 9am and Tyler around 10am.  I made sure everyone had breakfast / brunch.  We played downstairs and in the sunroom most of the day, since it was cold outside.  We spent about 1 hour outside later in the day, hoping that the temperature would rise some.  For dinner, I fixed the kids plates (leftovers mostly).  
+
+### 5/10/2020
+Literally, the same as Saturday except I barbequed ribs, chicken, and hot dogs outside  since the kids asked me.
+
+### 5/11/2020
+I woke up at 7am and got dressed for work, leaving around 7:30 (after I got Palmer breakfast).

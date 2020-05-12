@@ -249,4 +249,7 @@ Palmer and I woke up at about 8:15am, he hung around the kitchen while I made pa
 Literally, the same as Saturday except I barbequed ribs, chicken, and hot dogs outside  since the kids asked me.
 
 ### 5/11/2020
-I woke up at 7am and got dressed for work, leaving around 7:30 (after I got Palmer breakfast).
+I woke up at 7am and got dressed for work, leaving around 7:30 (after I got Palmer breakfast).  I picked up groceries at 4:30pm before heading home. The kids ate leftover barbeque  for dinner.  After dinner, I played outside with Harper and Palmer.
+
+### 5/12/2020
+I woke up at 5am and got dressed for work, leaving around 5:30.

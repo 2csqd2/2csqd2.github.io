@@ -252,4 +252,7 @@ Literally, the same as Saturday except I barbequed ribs, chicken, and hot dogs o
 I woke up at 7am and got dressed for work, leaving around 7:30 (after I got Palmer breakfast).  I picked up groceries at 4:30pm before heading home. The kids ate leftover barbeque  for dinner.  After dinner, I played outside with Harper and Palmer.
 
 ### 5/12/2020
-I woke up at 5am and got dressed for work, leaving around 5:30.
+I woke up at 5am and got dressed for work, leaving around 5:30.  I returned home at about 3:45pm.  Between 4:40 - 5pm I made Harper and Palmer's dinner (macaroni & cheese, green beans, and chicken) since they wer both hungry.  Harper had three zoom classes this afternoon, so I helped her with technical problems after the first one was over.  I then went outside and repaired holes in the soccer goal's netting.  Palmer and I then played soccer for about 20 minutes before we went back inside.  I spoke to Tyler about switching rooms and he was eager to do so (he felt his existing room has too much space and it is difficult to decorate). So Tyler and I talked and made a rough diagram about how to arrange furniture in his new room.  I got ready for bed at 10pm.
+
+### 5/13/2020
+I woke up at 7am and got dressed for work, leaving around 7:45am.

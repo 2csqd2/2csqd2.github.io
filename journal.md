@@ -254,5 +254,8 @@ I woke up at 7am and got dressed for work, leaving around 7:30 (after I got Palm
 ### 5/12/2020
 I woke up at 5am and got dressed for work, leaving around 5:30.  I returned home at about 3:45pm.  Between 4:40 - 5pm I made Harper and Palmer's dinner (macaroni & cheese, green beans, and chicken) since they wer both hungry.  Harper had three zoom classes this afternoon, so I helped her with technical problems after the first one was over.  I then went outside and repaired holes in the soccer goal's netting.  Palmer and I then played soccer for about 20 minutes before we went back inside.  I spoke to Tyler about switching rooms and he was eager to do so (he felt his existing room has too much space and it is difficult to decorate). So Tyler and I talked and made a rough diagram about how to arrange furniture in his new room.  I got ready for bed at 10pm.
 
-### 5/13/2020
-I woke up at 7am and got dressed for work, leaving around 7:45am.
+### 5/17/2020
+I made Palmer oatmeal with strawberries and Harper grits with a sunny-side up egg on top for breakfast (Sat. and Sun.).  I  told the  kids that I was putting the electronic devices back on a time restriction Sunday' since they have all been slowly slipping from there schedule during the quarantine effort (it is important to maintain a healthy routine to keep the mental sanity during times of increased stress!).  
+
+### 5/18/2020
+I woke up at 4:54 am after sleeping on the couch (I put Tyler's bed back together for him).  We were going to switch rooms this weekend, but I didn't feel like moving that much furniture between the two of us. I left for work at about 5:30 and got dressed for work, leaving around 7:45am.

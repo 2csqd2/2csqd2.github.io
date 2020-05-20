@@ -259,3 +259,9 @@ I made Palmer oatmeal with strawberries and Harper grits with a sunny-side up eg
 
 ### 5/18/2020
 I woke up at 4:54 am after sleeping on the couch (I put Tyler's bed back together for him).  We were going to switch rooms this weekend, but I didn't feel like moving that much furniture between the two of us. I left for work at about 5:30 and got dressed for work, leaving around 7:45am.
+
+### 5/19/2020
+I woke up at 8:30 and stayed at home today.  At about 9:15 I helped Harper prepare her breakfast.  The kids sat at the kitchen table doing their school work until about 12:15pm, when they ate lunch.  They went back to school work after lunch but were pretty much done by 2pm.  Harper and I went for a walk around the neighborhood at about 2:15pm so that I could get some more steps in (3,000 steps since my daily target is 10,000).  Palmer and packed away the toy car race track after Harper and I returned from the walk, so Harper could get ready for her dance class at 3:15 (via zoom).  Lachelle made something for dinner for the kids, while I ordered 2 pizzas & 3 subs from Paisano's later that evening (for dinner and lunch the next day).  At around 11pm Lachelle was doing laundry, she opened the office door to try and engage in small talk.  I asked her what she was doing, and she said "lighten up, I was just trying playing."  I told her I don't ever want to "play with her," close the door.  She replied, well I guess I'm a horrible person." I didn't say anything to her and continued to look out the side of my eye at the door knob (she saw me... and finaly closed the door).  She is deranged... has no consideration for consequences of actions and personal responsibility.  I don't think she is a fully functioning adult.  
+
+### 5/20/2020
+I woke up at 5:30 and went to work

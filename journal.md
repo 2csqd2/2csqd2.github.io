@@ -265,3 +265,6 @@ I woke up at 8:30 and stayed at home today.  At about 9:15 I helped Harper prepa
 
 ### 5/20/2020
 I woke up at 5:30 and went to work
+
+### 5/21/2020
+I woke up at 5:30 and went to work

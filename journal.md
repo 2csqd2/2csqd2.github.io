@@ -267,4 +267,18 @@ I woke up at 8:30 and stayed at home today.  At about 9:15 I helped Harper prepa
 I woke up at 5:30 and went to work.  I arrived back home at about 2:30pm. The kids had just finished their school work. I went to the office to work for about 2  more hours.  I then played twister, jumped rope, and bean bag toss with Palmer and Tyler until 5:30pm.  I then went upstairs to fix Harper and Palmer's dinner.  Tyler fixed his own plate and ate at about 6:30p.  Lachelle had a crazy attitude all afternoon (since I don't speak to her unless it is about the kids, she was still trying to initiate conversations with me), but was distinctly short in attitude and loud in voice.  I mostly avoided her for the rest of the afternoon.
 
 ### 5/21/2020
+I woke up at 5:30 and went to work.
+
+### 5/23/2020
+I woke up at 5pm and drove to Blacksburg to play the Va Tech / River golf course.  When I arrived, the course was closed because of flooding so I drove back home.  I got back at about 4:30 pm and hung out with the kids.
+
+### 5/25/2020
+I woke up at 5:30 am played 18 holes and returned home at 10:05 am...yes!   I made Harper and Palmer more food since they asked for a snack when I got home.  
+
+### 5/27/2020
+I woke up at 5:30 am and went to work and returned home at 2:30pm.  I printed some coloring templates for Palmer so that we could make some 'villan' templates so he could play with his action templates.  I played with Palmer while Harper was doing her Zoom dance class. At about 5:30 pm I made a salad, cooked pizza, and made 3 plates for the kids dinner.  
+
+### 5/28/2020
 I woke up at 5:30 and went to work
+
+

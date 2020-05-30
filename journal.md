@@ -279,6 +279,10 @@ I woke up at 5:30 am played 18 holes and returned home at 10:05 am...yes!   I ma
 I woke up at 5:30 am and went to work and returned home at 2:30pm.  I printed some coloring templates for Palmer so that we could make some 'villan' templates so he could play with his action templates.  I played with Palmer while Harper was doing her Zoom dance class. At about 5:30 pm I made a salad, cooked pizza, and made 3 plates for the kids dinner.  
 
 ### 5/28/2020
-I woke up at 5:30 and went to work
+I woke up at 5:30 and went to work.   I picked up Chik-Fil-A sandwiches and waffle fries for dinner.  
 
+### 5/29/2020
+I woke up at 5:30 and went to work.  I went to the grocery store in the middle of the day to get milk and bread.   I went by Vocelli's after work to bring home dinner and lunch for Sat.
 
+### 5/30/2020
+I woke up and trimmed the yard.  I then supervised Tyler cutting the front lawn while Palmer played outside.  I cleaned the weeds out of the side lawn while showing Harper how to plant a tomato plant.  I let her pick the spot and she dug the hole.  We went inside afterwards to break for lunch.  I took out the mini-pools and filled them up so Palmer and Harper could play in the water.

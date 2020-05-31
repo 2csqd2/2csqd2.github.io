@@ -285,4 +285,7 @@ I woke up at 5:30 and went to work.   I picked up Chik-Fil-A sandwiches and waff
 I woke up at 5:30 and went to work.  I went to the grocery store in the middle of the day to get milk and bread.   I went by Vocelli's after work to bring home dinner and lunch for Sat.
 
 ### 5/30/2020
-I woke up and trimmed the yard.  I then supervised Tyler cutting the front lawn while Palmer played outside.  I cleaned the weeds out of the side lawn while showing Harper how to plant a tomato plant.  I let her pick the spot and she dug the hole.  We went inside afterwards to break for lunch.  I took out the mini-pools and filled them up so Palmer and Harper could play in the water.
+I woke up and trimmed the yard.  I then supervised Tyler cutting the front lawn while Palmer played outside.  I cleaned the weeds out of the side lawn while showing Harper how to plant a tomato plant.  I let her pick the spot and she dug the hole.  We went inside afterwards to break for lunch.  I took out the mini-pools and filled them up so Palmer and Harper could play in the water.  The kids ate leftovers for dinner.
+
+### 5/31/2020
+Palmer and I woke up at 7am.  I made his breakfast while I made coffee. We then went downstairs to the office until I had to leave at 9am to go to the golf tournament.

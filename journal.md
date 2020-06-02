@@ -1,7 +1,7 @@
 # Journal Entry
 <!-- TOC depthFrom:2 -->
 
-
+- [June](#june-2020)
 - [May](#may-2020)
 - [April](#april-2020)
 - [March](#march-2020)
@@ -295,5 +295,5 @@ Palmer and I woke up at 7am.  I made his breakfast while I made coffee. We then 
 I went to work at 5:30am, returned home at 2:45pm.  I read a book to Palmer and we played volleybal for most of the afternoon.  Harper built a fort upstairs and spent most of the afternoon between her room and the fort.  The kids ate leftovers for dinner.
 
 ### 6/2/2020
-I went to work at 7:45am after getting Palmer breakfast
+I went to work at 7:45am after getting Palmer breakfast.  I haven't actually slept in a bed for 3 months.
 

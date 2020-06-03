@@ -295,5 +295,7 @@ Palmer and I woke up at 7am.  I made his breakfast while I made coffee. We then 
 I went to work at 5:30am, returned home at 2:45pm.  I read a book to Palmer and we played volleybal for most of the afternoon.  Harper built a fort upstairs and spent most of the afternoon between her room and the fort.  The kids ate leftovers for dinner.
 
 ### 6/2/2020
-I went to work at 7:45am after getting Palmer breakfast.  I haven't actually slept in a bed for 3 months.
+I went to work at 7:45am after getting Palmer breakfast.  I haven't actually slept in a bed for 3 months.  I came home at about 4:30 and watched a show with Harper since her dance class was cancelled for today. Afterwards, I played with Palmer as he built and re-built tracks for toy cars and trucks.  Lachelle made the kids dinner (Palmer and her mad breaded chicken bites). 
 
+### 6/3/2020
+I went to work at 5:45am 

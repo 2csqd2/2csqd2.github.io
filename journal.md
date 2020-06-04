@@ -298,4 +298,4 @@ I went to work at 5:30am, returned home at 2:45pm.  I read a book to Palmer and 
 I went to work at 7:45am after getting Palmer breakfast.  I haven't actually slept in a bed for 3 months.  I came home at about 4:30 and watched a show with Harper since her dance class was cancelled for today. Afterwards, I played with Palmer as he built and re-built tracks for toy cars and trucks.  Lachelle made the kids dinner (Palmer and her mad breaded chicken bites). 
 
 ### 6/3/2020
-I went to work at 5:45am.  Lachelle had 4 bottles of win delivered today... the drowning continues. 
+I went to work at 5:45am.  Lachelle had 4 bottles of win delivered today... the drowning continues.  I got home at about 2:45pm.  All the kids seemed done with their school work and were either playing in a fort (in the middle of the living room) or playing in their room.  I made dinner for Harper and Palmer at 6pm, while Tyler didn't eat until almost 7pm.   

@@ -276,7 +276,7 @@ I woke up at 5pm and drove to Blacksburg to play the Va Tech / River golf course
 I woke up at 5:30 am played 18 holes and returned home at 10:05 am...yes!   I made Harper and Palmer more food since they asked for a snack when I got home.  
 
 ### 5/27/2020
-I woke up at 5:30 am and went to work and returned home at 2:30pm.  I printed some coloring templates for Palmer so that we could make some 'villan' templates so he could play with his action templates.  I played with Palmer while Harper was doing her Zoom dance class. At about 5:30 pm I made a salad, cooked pizza, and made 3 plates for the kids dinner.  
+I woke up at 5:30 am and went to work and returned home at 2:30pm.  I printed some coloring templates for Palmer so that we could make some 'villan' templates so he could play with his action templates.  I played with Palmer while Harper was doing her Zoom dance class. At about 5:30 pm I made a salad, cooked pizza, and made 3 plates for the kids dinner.  I also found a print out of Lachelle's therapy 'homework,' it was some kind of relationship perception/satisfaction scale. Predicatbly it said she felt secure financially and she felt that her new relationship had 'more' in store for her than the current one.
 
 ### 5/28/2020
 I woke up at 5:30 and went to work.   I picked up Chik-Fil-A sandwiches and waffle fries for dinner.  
@@ -299,3 +299,9 @@ I went to work at 7:45am after getting Palmer breakfast.  I haven't actually sle
 
 ### 6/3/2020
 I went to work at 5:45am.  Lachelle had 4 bottles of wine delivered today... the drowning continues.  I got home at about 2:45pm.  All the kids seemed done with their school work and were either playing in a fort (in the middle of the living room) or playing in their room.  I made dinner for Harper and Palmer at 6pm, while Tyler didn't eat until almost 7pm.   
+
+### 6/4/2020
+I went to work at 645am today and arrived back home at 4pm.  Lachelle made Spaghetti for the kids.
+
+### 6/5/2020
+I went to work at 7am this morning and returned home at .  

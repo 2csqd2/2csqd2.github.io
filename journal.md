@@ -304,4 +304,10 @@ I went to work at 5:45am.  Lachelle had 4 bottles of wine delivered today... the
 I went to work at 645am today and arrived back home at 4pm.  Lachelle made Spaghetti for the kids.
 
 ### 6/5/2020
-I went to work at 7am this morning and returned home at .  
+I went to work at 7am this morning and returned home at . 
+
+### 6/6/2020 and 6/7/2020
+I woke up at 8am each day and went for a 30 minute walk.  Each day I spent as much time outside as possible aas the kids played with water (pool, spraying).  I worked around the flower beds in the backyard, planting vegetables and replacing grass in bad spots.  Palmer and Harpe like to dig and plant things so...
+
+### 6/5/2020
+I woke up at 7:30am since Lachelle had to run errands.  She came back at 8:30 so I went for a walk.  She went back out at 9:30 to go to another appointment.

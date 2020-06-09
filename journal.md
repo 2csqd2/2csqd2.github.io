@@ -313,4 +313,6 @@ I woke up at 8am each day and went for a 30 minute walk.  Each day I spent as mu
 I woke up at 7:30am since Lachelle had to run errands.  She came back at 8:30 so I went for a walk.  She went back out at 9:30 to go to another appointment.  I ended up staying at home all day.  Everyone tried to avoid one another (the kids school work is dwindling down since it is the last week).  Tyler and I switched rooms yesterday, so he and Palmer helped me to clean and move furniture.  We also mad a new arts and craft are underneath the stairs (in the lighted nook) that I made a few years ago.  It took Tyler and I about 5  hours to  finish setting up his room, but it was well worth it! 
 
 ### 6/9/2020
-Last night was the first time I slept in a bed in 3 months, so I slept in until about 8:30am and then went to work.
+Last night was the first time I slept in a bed in 3 months, so I slept in until about 8:30am and then went to work.  The lock (key lock) I ordered for my room downstairs was dropped of by Amazon very early this morning so I installed it on the door and locked it before I left. Lachelle continued to walk into the office (even with the door closed).  Yesterday afternoon she did it just to see my reaction.
+
+

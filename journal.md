@@ -317,3 +317,10 @@ Last night was the first time I slept in a bed in 3 months, so I slept in until 
 
 ### 6/10/2020
 I went to work at about 5:45am and returned about 3pm.  Harper had dance class this afternoon and Palmer was watching some PBS Kids show.  At about 4:45pm Palmer and I went upstairs to make pizza dough.  We let the dough sit for about 35 minutes, while waiting for HArper to finish her dance class.  Harper finished up the pizza and that's what the kid ste for dinner.  
+
+
+### 6/15/2020
+I went to work at about 7 am and retunred at about 3pm.  Harper went to a play date this afternoon, and Palmer and Tyler were playing in the "pool" when I returned home.  I ordered dinner from Busboy Poets since it was half price Mondays.  Lachelle worked in the Kitchen until 6:30pm and then went to sleep.  Harper and I watched a show after dinner and then I jumped to play with Palmer.  I gave Tyler a haircut (much needed).
+
+### 6/16/2020
+I went to work at about 7:45am an.  

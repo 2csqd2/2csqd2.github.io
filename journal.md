@@ -324,3 +324,10 @@ I went to work at about 7 am and retunred at about 3pm.  Harper went to a play d
 
 ### 6/16/2020
 I went to work at about 7:45am an.  
+
+### 6/22/2020
+I responded to LAchelle's draft parenting plan and we tried to discuss and negotiate for about an hour.
+
+### 6/23/2020
+I went to work at 10am after waiting for LAchelle to return from her yearly physical appointment
+

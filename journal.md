@@ -331,3 +331,10 @@ I responded to LAchelle's draft parenting plan and we tried to discuss and negot
 ### 6/23/2020
 I went to work at 10am after waiting for LAchelle to return from her yearly physical appointment
 
+### 6/24/2020
+I stayed at home with the kids so Lachelle could go into the office.  I fixed the kids bowls of cereal when they woke up.  At around 11:30 Tyler and I went upstaurs to cook brunch (he made the eggs), while I made pizza dough and an apple fritter.  After lunch the kids went  of to do their own activities.  At 2pm Tyler, Palmer and I walked to the baseball field and played baseball for about a half an hour.  Harper wanted to watch a movie.  When we returned home Palmer and Tyler wanted to get in the pool so I helped Tyler inflate it and supervised for about an hour.
+
+### 6/25/2020
+I went to work at 8am today, after sleeping in.
+
+

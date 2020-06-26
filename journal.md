@@ -335,6 +335,7 @@ I went to work at 10am after waiting for LAchelle to return from her yearly phys
 I stayed at home with the kids so Lachelle could go into the office.  I fixed the kids bowls of cereal when they woke up.  At around 11:30 Tyler and I went upstaurs to cook brunch (he made the eggs), while I made pizza dough and an apple fritter.  After lunch the kids went  of to do their own activities.  At 2pm Tyler, Palmer and I walked to the baseball field and played baseball for about a half an hour.  Harper wanted to watch a movie.  When we returned home Palmer and Tyler wanted to get in the pool so I helped Tyler inflate it and supervised for about an hour.
 
 ### 6/25/2020
-I went to work at 8am today, after sleeping in.
+I went to work at 8am today, after sleeping in. I came home at about 4 pm.  I gathered Palmer and Tyler to help me unload mulch from the car and spread it in the yard.  Palmer wanted to go back to the baseball field, put we found out that it was closed (awaiting inspection to open, even though we were on it the day before).  So... we took out the pool and played in the pool instead. 
+
 
 

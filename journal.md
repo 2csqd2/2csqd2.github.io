@@ -335,7 +335,19 @@ I went to work at 10am after waiting for LAchelle to return from her yearly phys
 I stayed at home with the kids so Lachelle could go into the office.  I fixed the kids bowls of cereal when they woke up.  At around 11:30 Tyler and I went upstaurs to cook brunch (he made the eggs), while I made pizza dough and an apple fritter.  After lunch the kids went  of to do their own activities.  At 2pm Tyler, Palmer and I walked to the baseball field and played baseball for about a half an hour.  Harper wanted to watch a movie.  When we returned home Palmer and Tyler wanted to get in the pool so I helped Tyler inflate it and supervised for about an hour.
 
 ### 6/25/2020
-I went to work at 8am today, after sleeping in. I came home at about 4 pm.  I gathered Palmer and Tyler to help me unload mulch from the car and spread it in the yard.  Palmer wanted to go back to the baseball field, put we found out that it was closed (awaiting inspection to open, even though we were on it the day before).  So... we took out the pool and played in the pool instead. 
+I went to work at 8am today, after sleeping in. I came home at about 4 pm.  I gathered Palmer and Tyler to help me unload mulch from the car and spread it in the yard.  Palmer wanted to go back to the baseball field, put we found out that it was closed (awaiting inspection to open, even though we were on it the day before).  So... we took out the pool and played in the pool instead.  Lachelle and I talked later about the separation agreement and I ended up showing her the state of Virginia calculator for child support since she was complaining about a specified child support amount getting paid to her, when I pay all of the kids expensed.  She came to her senses after seeing the buildup.
 
+### 6/26/2020
+When I returned home from 
 
+### 6/27/2020
+Everyone slept in today.  I had Tyler cut the grass in the back yard around 10 so the kids could play later that day.
 
+### 6/28/2020
+I found a leak in the basement comming from the drain...so I went outside to make sure the ground pipes/drainage was clear.  Palmer asked to help me clear debris so I gave him a little shovel.  We moved the play pool into the grass, away from the drainage area.
+
+### 6/29/2020
+I went to work at 5:45am, Tyler woke up at the same time so that was funny.  He ended up falling back asleep two hours later.  I stopped by the house at 12:30 and everyone was engaged in a seperate activity.  I went back to work and finally returned home at 4:30pm.  I checked on the kids and then made shrimp Lo Mein for the kids dinner.  Lachelle said she needed to talk to me.  She ended up asking me to cosign for the apartment she and her mother were planning to share (mother on there a few months).  This need was never discussed when we were talking about the seperation agreement.  She came down to my room to talk.  I told her that the idea of me signing up for more financial and legal liability for her was not in my best interest, so no.  She got really mad at me and could not understand my perspective. She constantly would say it was for the kids, but if I am paying her and she doesn't pay the rent then....  She called me explicit names and I asked her to leave the room three times.  She finally left, slamming the door.
+
+### 6/30/2020
+I woke up at about 6:30am along with Palmer and put anti-itch cream on him since he was scratching.  I got him settled and left for work at about 7:30am.  

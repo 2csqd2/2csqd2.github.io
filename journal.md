@@ -351,3 +351,18 @@ I went to work at 5:45am, Tyler woke up at the same time so that was funny.  He 
 
 ### 6/30/2020
 I woke up at about 6:30am along with Palmer and put anti-itch cream on him since he was scratching.  I got him settled and left for work at about 7:30am.  
+
+## July 2020
+
+### 7/3/2020
+The kids and I packed woke up at about 8:30 am and packed our clothes and cooler to head to the lake house.  We left at about 9:30 am and hit alot of traffic on I-95 , everyone had the same idea.  Around that time Palmer said he was feeling sick and had to use the bathroom.  I went to a park near Occoquan and he used the restroom.  Restrooms in public establishments were hard to find because alot of place kept them closed and limited the amount of people allowed inside.  We went back home and left again at 1pm, going a different route  on MD-301 which avoided the traffic.  We got to the lake house at about 3:30pm.
+
+
+### 7/4/2020
+I had the kids practice packing up after we went to the beach.  Everyone did great except for Palmer, who was not listening very well.
+
+### 7/5/2020
+
+
+### 7/6/2020
+I woke up at about 6:00 am and went to work at 7:30am, everyone was still asleep.

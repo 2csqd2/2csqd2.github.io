@@ -346,6 +346,11 @@ Everyone slept in today.  I had Tyler cut the grass in the back yard around 10 s
 ### 6/28/2020
 I found a leak in the basement comming from the drain...so I went outside to make sure the ground pipes/drainage was clear.  Palmer asked to help me clear debris so I gave him a little shovel.  We moved the play pool into the grass, away from the drainage area.
 
+### 7/6/2020
+I woke up at about 4:30 am and got dressed.  I had to take an additional bag out to the curb for trash pickup.  I got to work at 6 am.  I returned home at 11:30am so that Lachelle could go into work.
+
+
+
 ### 6/29/2020
 I went to work at 5:45am, Tyler woke up at the same time so that was funny.  He ended up falling back asleep two hours later.  I stopped by the house at 12:30 and everyone was engaged in a seperate activity.  I went back to work and finally returned home at 4:30pm.  I checked on the kids and then made shrimp Lo Mein for the kids dinner.  Lachelle said she needed to talk to me.  She ended up asking me to cosign for the apartment she and her mother were planning to share (mother on there a few months).  This need was never discussed when we were talking about the seperation agreement.  She came down to my room to talk.  I told her that the idea of me signing up for more financial and legal liability for her was not in my best interest, so no.  She got really mad at me and could not understand my perspective. She constantly would say it was for the kids, but if I am paying her and she doesn't pay the rent then....  She called me explicit names and I asked her to leave the room three times.  She finally left, slamming the door.
 
@@ -357,12 +362,11 @@ I woke up at about 6:30am along with Palmer and put anti-itch cream on him since
 ### 7/3/2020
 The kids and I packed woke up at about 8:30 am and packed our clothes and cooler to head to the lake house.  We left at about 9:30 am and hit alot of traffic on I-95 , everyone had the same idea.  Around that time Palmer said he was feeling sick and had to use the bathroom.  I went to a park near Occoquan and he used the restroom.  Restrooms in public establishments were hard to find because alot of place kept them closed and limited the amount of people allowed inside.  We went back home and left again at 1pm, going a different route  on MD-301 which avoided the traffic.  We got to the lake house at about 3:30pm.
 
-
 ### 7/4/2020
 I had the kids practice packing up after we went to the beach.  Everyone did great except for Palmer, who was not listening very well.
 
 ### 7/5/2020
-
+The kids and I slept in, then I made brunch of eggs, sausage, toast, and oatmeal.  Afterwards, I inflated the pool and filled it up. The kids played all over the back yard for about an hour and a half before heading back inside to get dry and get a snack.  I made fish, rice and broccoli for dinner.  We watched the Sonic movie (with popcorn) later on and then a few shows before bed.  Virtual summer school starts Monday, so tonight was technically a "school night".
 
 ### 7/6/2020
-I woke up at about 6:00 am and went to work at 7:30am, everyone was still asleep.
+I woke up at about 6:00 am and went to work at 7:00am, everyone was still asleep.  I worked 11 hours do I got home at about 6:15pm.  I made spagehtti and meatballs for dinner and asked the kids about their class work for the day.  Everyone seemed to be fine with the routine.

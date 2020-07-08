@@ -371,3 +371,9 @@ The kids and I slept in, then I made brunch of eggs, sausage, toast, and oatmeal
 
 ### 7/6/2020
 I woke up at about 6:00 am and went to work at 7:00am, everyone was still asleep.  I worked 11 hours do I got home at about 6:15pm.  I made spagehtti and meatballs for dinner and asked the kids about their class work for the day.  Everyone seemed to be fine with the routine.
+
+### 7/7/2020
+I woke up at about 4:30 so Icould get to work early and back home at 11:30 so LAchelle could go into her office for the afternoon.  I helped reorganize an area for Harper to do her dance class (she was the only one virtual this week, as everyone else went into the studio).  Lachelle ended up bringing home mexican food after she left work for the kids dinner.
+
+### 7/8/2020
+I went to work at 6 am and came back home at 3:30pm so that I could start the grill for HArper's party this evening (a Hawaiian Luau).

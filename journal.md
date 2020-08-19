@@ -1,6 +1,7 @@
 # Journal Entry
 <!-- TOC depthFrom:2 -->
 
+- [August](#august-2020)
 - [July](#july-2020)
 - [June](#june-2020)
 - [May](#may-2020)

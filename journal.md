@@ -377,3 +377,14 @@ I woke up at about 4:30 so Icould get to work early and back home at 11:30 so LA
 
 ### 7/8/2020
 I went to work at 6 am and came back home at 3:30pm so that I could start the grill for HArper's party this evening (a Hawaiian Luau).
+
+## August 2020
+
+### 8/16/2020
+Lachelle was almost done moving, but she was supposed to be done by the end of July originally.  She took alot of boxes out on Fri. and Sat. with Tyler's help.  I told her I wanted everything moved by Sunday, because she keep prolonging the move.  I started clearing out her closet and moving all boxes in the hallway and putting her clothes on a temporary hanging rod in the hallway.  I wanted to start the remodel that weekend and get out of the office.  The day before she persistent that she would finish moving as soon as possible and that I not touch her stuff in the closet.  I was almost done emptying the closest when I tought to check under the dresser (sits in the closet).  I found her marijuana stash: 
+
+[Drug paraphernalia](https://drive.google.com/file/d/12RDm0vCVPfx4ZwKKpwXslW9-JGwXIt8r/view?usp=sharing)
+
+[Drug paraphernalia2](https://drive.google.com/file/d/1jlXvZqz8tqySZP4-bDnxvcu8kPgolOXW/view?usp=sharing)
+
+She was at her apartment with the kids when I found this and I was furious, because once again... this violated the norms of our relationship and the house.  We didn't do drugs (at least that's what I thought) and didn't permit that in the house by friends etc.  I confronted her and she keep making the conversation about why did you move my stuff...?  I told her that was the issue.   She wouldn't take responsibility for her actions and that the deception and the illegality were the problem.  She said that it was legal now in the city... and the recreational drug use wasn't a big deal and was misunderstood.  Apparently, she got past deceiving me along time ago.  She even said that she did it at a friends house and even took a drug test for her new job, before smoking it.  Sigh...........
